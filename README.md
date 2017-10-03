@@ -1,0 +1,2 @@
+# ROMHacks
+SMW ANY TYPE
